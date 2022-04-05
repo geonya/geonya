@@ -1,1 +1,1 @@
-Hello, I'm Geony.
+Hello, I'm coding 초보
